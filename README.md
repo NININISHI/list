@@ -1,4 +1,4 @@
-~~◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠~~
+~~◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠~~
 
 ###### *W*e are *two* simple beings, nothing *more* nor *less*。
 
@@ -27,4 +27,4 @@
 ###### ㅤㅤ• *Y*ou are in the same regiments as us(Ask through *whisper* or *dm*).
 ###### ㅤㅤ• *Y*ou like the same things as we do(Ask through *whisper* or *dm* if interested).
 
-~~◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡~~
+~~◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡~~
